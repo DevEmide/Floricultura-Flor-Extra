@@ -10,6 +10,6 @@ CINERÁRIAAAAAAAAAAAAAAAAAAAAAAAAA
 <div align="center">
 
 <img src="https://media.tenor.com/0UFf9tLiZqcAAAAj/binding-of.gif" width="180">
-
+<img src="https://tenor.com/uTnUboFi1vo.gif" width="360">
 </div>
 🔥🔥🔥🔥🔥🔥secsu na orla 🔥🔥🔥🔥🔥🔥🔥
