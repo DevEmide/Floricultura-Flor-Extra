@@ -12,3 +12,4 @@ zazaelzis
 <img src="https://media.tenor.com/0UFf9tLiZqcAAAAj/binding-of.gif" width="180">
 
 </div>
+🔥🔥🔥🔥🔥🔥secsu na orla 🔥🔥🔥🔥🔥🔥🔥
