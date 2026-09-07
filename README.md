@@ -15,6 +15,4 @@ CINERÁRIAAAAAAAAAAAAAAAAAAAAAAAAA
 </div>
 🔥🔥🔥🔥🔥🔥secsu na orla 🔥🔥🔥🔥🔥🔥🔥
 
-<div align="center">
-  <img src="https://tenor.com/pt-BR/view/gengar-gif-17182270565678324102" width="180">
-</div>
+
