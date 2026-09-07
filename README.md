@@ -11,6 +11,6 @@ CINERÁRIAAAAAAAAAAAAAAAAAAAAAAAAA
 
 <img src="https://media.tenor.com/0UFf9tLiZqcAAAAj/binding-of.gif" width="180">
 
-<img src="[https://tenor.com/uTnUboFi1vo.gif](https://media1.tenor.com/m/8XKrVk_D9SgAAAAd/azazel-supremacy.gif)" width="180">
+
 </div>
 🔥🔥🔥🔥🔥🔥secsu na orla 🔥🔥🔥🔥🔥🔥🔥
